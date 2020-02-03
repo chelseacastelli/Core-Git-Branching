@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers. Braus, having seen the whole thing, stood in place, stunned. George flew & scooped the zookeeper up & they flew off into the sky.
+George met the Unicorn King who granted him magic powers. Braus, having seen the whole thing, stood in place, stunned. George flew & scooped up both the zookeeper & friendly koala, Mike, & flew off into the sky.
 
 The end.
 
